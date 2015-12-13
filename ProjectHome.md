@@ -1,0 +1,1 @@
+Com várias noticias e entretenimento
